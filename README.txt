@@ -1,0 +1,1 @@
+You've waddled into my folder full of random map edits and stuff. Most of these maps are going to be edits of existing maps and all that jazz which is why I decided not to upload them to the workshop because "copyright" reasons. You're free to download and do whatever with these, just don't come back here if you incur the wrath of the og map maker.
